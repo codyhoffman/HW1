@@ -1,2 +1,0 @@
-Cody Hoffman
-Chicago Cubs
